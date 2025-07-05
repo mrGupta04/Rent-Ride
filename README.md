@@ -11,7 +11,7 @@
 
 ## 📆 Project Duration
 
-**September 2024 – November 2024**
+**September 2023– November 2023**
 
 ---
 
